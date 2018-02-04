@@ -1,0 +1,1 @@
+# by-art-magazine
